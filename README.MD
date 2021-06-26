@@ -1,1 +1,1 @@
-Conteúdo incrível
+Conteúdo legal
